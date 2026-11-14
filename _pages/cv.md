@@ -25,14 +25,14 @@ Education
  
 Work experience
 ------
-* July 2024 - Present: PostDoc Fellow
+* July 2024 - June 2026: PostDoc Fellow
   * University of California, Riverside
   * Supervisor: Dr. Wenxiu Ma and Dr. Vivian Wei Li
 
 * July 2022 - June 2024: Graduate Student Researcher
   * University of California, Riverside
 
-* July 2020 - June 2022: Teaching Assistant
+* September 2020 - December 2022: Teaching Assistant
   * University of California, Riverside
   
 Talks
